@@ -45,4 +45,4 @@ Building better software solutions and improving my development skills.
 
 ---
 
-⭐ Thanks for visiting my profile!
+
